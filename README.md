@@ -1,0 +1,6 @@
+- 👋 Hello Guys, here is Seven,
+- 👀 I’m interested in coding, driving.
+- 🌱 I’m currently learning python, also operating management.
+- 💞️ I’m hunting a intern job to reach my goal.
+- 📫 How to reach me : sevenchan.hc@protonmail.com
+- 
